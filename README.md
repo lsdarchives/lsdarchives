@@ -1,4 +1,4 @@
-Welcome To My Lab 🫆
+## Welcome To My Lab 🫆
 
 Hi there! My name is Lesedi Moremedi. A founder, developer, and lifelong learner commited in creating bold solutions across tech, sustainability, and impact.
 My lab is where ideas are born, where ideas are tested and the future is shaped one experiment at a time.
