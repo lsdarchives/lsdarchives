@@ -22,12 +22,8 @@ My lab is where ideas are born, where ideas are tested and the future is shaped 
 
 ---
 
-## How to reach me
-
-- Email: lsdarchives99.@gmail.com
-- LinkedIn: [linkedin.com/in/your-profile](https://linkedin.com/in/your-profile)  
-- IG: @Uncutlsd
-
+## Send some ideas
+- Email: lsdarchives99@gmail.com
 ---
 
 ## Fun fact
