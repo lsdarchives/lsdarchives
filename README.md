@@ -1,4 +1,4 @@
-                                        Welcome To My Lab 🫆
+Welcome To My Lab 🫆
 
 Hi there! My name is Lesedi Moremedi. A founder, developer, and lifelong learner commited in creating bold solutions across tech, sustainability, and impact.
 My lab is where ideas are born, where ideas are tested and the future is shaped one experiment at a time.
@@ -13,7 +13,7 @@ My lab is where ideas are born, where ideas are tested and the future is shaped 
 - Building sustainable and impactful ecosystems
 
 ---
-## 💞️ I’m looking to collaborate on
+## I’m looking to collaborate on
 
 - Tech for good innovations  
 - Sustainability and circular economy projects  
@@ -22,7 +22,7 @@ My lab is where ideas are born, where ideas are tested and the future is shaped 
 
 ---
 
-## 📫 How to reach me
+## How to reach me
 
 - Email: lsdarchives99.@gmail.com
 - LinkedIn: [linkedin.com/in/your-profile](https://linkedin.com/in/your-profile)  
@@ -30,9 +30,9 @@ My lab is where ideas are born, where ideas are tested and the future is shaped 
 
 ---
 
-## ⚡ Fun fact
+## Fun fact
 
-I’m building across industries using grit, creativity, and vision, all from scratch,one idea at a time.
+I’m want to build across industries using creativity, collaboration and vision, all from scratch, one idea at a time.
 
 ---
 
