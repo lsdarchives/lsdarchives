@@ -8,7 +8,7 @@ My lab is where ideas are born, where ideas are tested and the future is shaped 
 - Email: lsdarchives99@gmail.com
 ---
 ## Fun fact
-I’m want to build across industries using creativity, collaboration and vision, all from scratch, one idea at a time.
+I want to build across industries using creativity, collaboration and vision, all from scratch, one idea at a time.
 
 ---
 > *"Not everything needs to be perfect — it just needs to start."*
